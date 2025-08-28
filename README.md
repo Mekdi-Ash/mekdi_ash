@@ -29,9 +29,8 @@
 ---
 
 ## 📫 Connect with Me
-- LinkedIn: [Your LinkedIn link here]  
-- Email: [Your email here]  
-
+- LinkedIn:  https://www.linkedin.com/in/mekdelawit-gebremeskel-6ab426381/
+- Email: madiash70@gmail.com
 ---
 
 ⭐️ *Thanks for visiting my profile! Stay tuned for more projects.*  
